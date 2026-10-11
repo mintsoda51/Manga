@@ -1,6 +1,4 @@
-# Manga
-
-## Inu to Kuzu - Chó Và Cặn Bã - 犬と屑 | END Chương 42 + extra
+# Inu to Kuzu - Chó Và Cặn Bã - 犬と屑 | END Chương 42 + extra
 
 ![](https://pbs.twimg.com/media/HUWuUihaoAE6Df1?format=jpg&name=medium)
 
@@ -10,7 +8,7 @@
 
 ---
 
-## Dear Sa-chan -  Sa-chan, Boku wa - さっちゃん、僕は。| END
+# Dear Sa-chan -  Sa-chan, Boku wa - さっちゃん、僕は。| END
 
 ![](https://pbs.twimg.com/media/HUWvjNRa0AA7g4-?format=jpg&name=large)
 

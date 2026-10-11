@@ -1,6 +1,6 @@
 # [END] Chó Và Cặn Bã (Inu to Kuzu)
 
-![](https://pbs.twimg.com/media/HUWuUihaoAE6Df1)
+![](https://pbs.twimg.com/media/HUWuUihaoAE6Df1?format=jpg&name=medium)
 
 👤 **Tác giả:** Asaga Iori
 

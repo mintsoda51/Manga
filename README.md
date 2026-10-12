@@ -6,8 +6,6 @@
 
 **ĐÁNH GIÁ:** 👁️ Must Watch 🙌 Tuyệt đối điện ảnh 🏢 11/9 chuyên gia khuyên dùng 🤌 Approved
 
----
-
 # Dear Sa-chan -  Sa-chan, Boku wa - さっちゃん、僕は。| END
 
 ![](https://pbs.twimg.com/media/HUWvjNRa0AA7g4-?format=jpg&name=large)
@@ -16,4 +14,9 @@
 
 **ĐÁNH GIÁ:** 💔 Chữa lành ‼️NTR Alert 🤌 Approved 
 
----
+# Bokutachi wa Hanshoku wo Yameta - ch49-52 (END)
+
+👤 **Tác giả:** Saotome Yagi | **Thể loại:** Drama, Romance, incest.
+
+**ĐÁNH GIÁ:** 💔 Chữa lành, Art đẹp, 🤌 Approved
+

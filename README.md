@@ -33,3 +33,5 @@
 👤 **Tác giả:** Asaga Iori | **Thể loại:** Shoujo, Drama, Romance
 
 **ĐÁNH GIÁ:** Ai thích drama thì bơi vào đây.
+
+![](https://pbs.twimg.com/media/HUZPm_GakAA3pw5?format=jpg&name=large)

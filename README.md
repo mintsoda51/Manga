@@ -20,6 +20,8 @@
 
 # Bokutachi wa Hanshoku wo Yameta - ch49-52 (END)
 
+![](https://pbs.twimg.com/media/HUZl7wZbsAAt-aG?format=jpg&name=900x900)
+
 👤 **Tác giả:** Saotome Yagi 
 
 **Thể loại:** Drama, Romance, incest.

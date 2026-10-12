@@ -27,3 +27,9 @@
 **ĐÁNH GIÁ:** Vui, sóng gió phủ đời trai, tương lai nhờ nhà vợ. Điểm cộng: Ít ra là nó end chứ không nhây.
 
 ![](https://pbs.twimg.com/media/HUZO46CasAAM_W2?format=jpg&name=large)
+
+# Kimi wa Itsushika Doku ni Naru - "Em rồi sẽ thành thuốc độc" 君はいつしか毒になる
+
+👤 **Tác giả:** Asaga Iori | **Thể loại:** Shoujo, Drame, Romance
+
+**ĐÁNH GIÁ:** Ai thích drama thì bơi vào đây.

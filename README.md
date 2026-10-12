@@ -25,3 +25,5 @@
 👤 **Tác giả:** Kōji Seo (瀬尾公治) | **Thể loại:** Harem, Romcom, Ecchi, Slice of Life.
 
 **ĐÁNH GIÁ:** Vui, sóng gió phủ đời trai, tương lai nhờ nhà vợ. Điểm cộng: Ít ra là nó end chứ không nhây.
+
+![](https://pbs.twimg.com/media/HUZO46CasAAM_W2?format=jpg&name=large)

@@ -2,7 +2,9 @@
 
 ![](https://pbs.twimg.com/media/HUWuUihaoAE6Df1?format=jpg&name=medium)
 
-👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Romance, Seinen
+👤 **Tác giả:** Asaga Iori
+
+**Thể loại:** Drama, Romance, Seinen
 
 **ĐÁNH GIÁ:** 👁️ Must Watch 🙌 Tuyệt đối điện ảnh 🏢 11/9 chuyên gia khuyên dùng 🤌 Approved
 
@@ -10,28 +12,38 @@
 
 ![](https://pbs.twimg.com/media/HUWvjNRa0AA7g4-?format=jpg&name=large)
 
-👤 **Tác giả:** Asaga Iori | **Thể loại:** Drama, Ecchi, Romance, Shounen, Tragedy
+👤 **Tác giả:** Asaga Iori
+
+**Thể loại:** Drama, Ecchi, Romance, Shounen, Tragedy
 
 **ĐÁNH GIÁ:** 💔 Chữa lành ‼️NTR Alert 🤌 Approved 
 
 # Bokutachi wa Hanshoku wo Yameta - ch49-52 (END)
 
-👤 **Tác giả:** Saotome Yagi | **Thể loại:** Drama, Romance, incest.
+👤 **Tác giả:** Saotome Yagi 
+
+**Thể loại:** Drama, Romance, incest.
 
 **ĐÁNH GIÁ:** 💔 Chữa lành, Art đẹp, 🤌 Approved
 
 # Megami no Cafe Terrace (女神のカフェテラス) | END
 
-👤 **Tác giả:** Kōji Seo (瀬尾公治) | **Thể loại:** Harem, Romcom, Ecchi, Slice of Life.
+![](https://pbs.twimg.com/media/HUZO46CasAAM_W2?format=jpg&name=large)
+
+👤 **Tác giả:** Kōji Seo (瀬尾公治) 
+
+**Thể loại:** Harem, Romcom, Ecchi, Slice of Life.
 
 **ĐÁNH GIÁ:** Vui, sóng gió phủ đời trai, tương lai nhờ nhà vợ. Điểm cộng: Ít ra là nó end chứ không nhây.
 
-![](https://pbs.twimg.com/media/HUZO46CasAAM_W2?format=jpg&name=large)
-
 # Kimi wa Itsushika Doku ni Naru - "Em rồi sẽ thành thuốc độc" 君はいつしか毒になる
 
-👤 **Tác giả:** Asaga Iori | **Thể loại:** Shoujo, Drama, Romance
+![](https://pbs.twimg.com/media/HUZPm_GakAA3pw5?format=jpg&name=large)
+
+👤 **Tác giả:** Asaga Iori 
+
+**Thể loại:** Shoujo, Drama, Romance
 
 **ĐÁNH GIÁ:** Ai thích drama thì bơi vào đây.
 
-![](https://pbs.twimg.com/media/HUZPm_GakAA3pw5?format=jpg&name=large)
+

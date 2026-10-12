@@ -30,6 +30,6 @@
 
 # Kimi wa Itsushika Doku ni Naru - "Em rồi sẽ thành thuốc độc" 君はいつしか毒になる
 
-👤 **Tác giả:** Asaga Iori | **Thể loại:** Shoujo, Drame, Romance
+👤 **Tác giả:** Asaga Iori | **Thể loại:** Shoujo, Drama, Romance
 
 **ĐÁNH GIÁ:** Ai thích drama thì bơi vào đây.
